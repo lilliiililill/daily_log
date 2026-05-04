@@ -1,2 +1,2 @@
 # daily_log
-:)
+xb
